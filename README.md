@@ -1,4 +1,4 @@
-# Hi, there! I’m ✨ Amadeo Cutini ✨ 👋
+# Hi, I’m Amadeo Cutini 👋
 
 
 
