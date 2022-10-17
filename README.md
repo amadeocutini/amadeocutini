@@ -1,4 +1,4 @@
-# console.log('Hello, world! 👋')
+# Hi, there! I am ✨ Amadeo Cutini ✨ 👋
 
 
 
